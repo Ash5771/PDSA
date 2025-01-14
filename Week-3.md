@@ -1,7 +1,7 @@
 # 📚 **PDSA Week 3 PYQ**
 
 Welcome to **Week 3** of the **PDSA**!  
-In this video, I solve and explain the Week 2 Past Year Questions (PYQ) for the **PDSA**. Watch the step-by-step approach to tackling key problems and understanding important concepts from the #rd week of the course.
+In this video, I solve and explain the **Week 3** Past Year Questions (PYQ) for the **PDSA**. Watch the step-by-step approach to tackling key problems and understanding important concepts from the #rd week of the course.
 
 solved Previous year questions.
 
