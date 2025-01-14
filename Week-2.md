@@ -1,4 +1,4 @@
-# 📚 **PDSA Week 2 PYQ **
+# 📚 **PDSA Week 2 PYQ**
 
 Welcome to **Week 2** of the **PDSA**!  
 In this video, I solve and explain the Week 2 Past Year Questions (PYQ) for the **PDSA**. Watch the step-by-step approach to tackling key problems and understanding important concepts from the second week of the course.
