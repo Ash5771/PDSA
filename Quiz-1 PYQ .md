@@ -6,13 +6,13 @@ In this section, you'll find the **Past Year Questions (PYQ)** for **Quiz-1** fr
 ---
 
 ## 📅 **Sept 24 Quiz-1 PYQ**
-👉 **[Access Sept 24 Quiz-1 PYQ](#Comming Soon)**
+👉 **[Access Sept 24 Quiz-1 PYQ Video](#Comming Soon)**
 
 ## 📅 **May 24 Quiz-1 PYQ**
-👉 **[Access May 24 Quiz-1 PYQ](https://youtu.be/MGchbfQqXt4?si=jFxH3IrMST_IR9U7)**
+👉 **[Access May 24 Quiz-1 PYQ  Video](https://youtu.be/MGchbfQqXt4?si=jFxH3IrMST_IR9U7)**
 
 ## 📅 **Jan 24 Quiz-1 PYQ**
-👉 **[Access Jan 24 Quiz-1 PYQ](https://youtu.be/FNfmEJqK8bU?si=ljOihSRVu0G2yrM4)**
+👉 **[Access Jan 24 Quiz-1 PYQ  Video](https://youtu.be/FNfmEJqK8bU?si=ljOihSRVu0G2yrM4)**
 
 ---
 Feel free to check them out and let me know if you have any questions!
